@@ -1,0 +1,1 @@
+# male-algoritmy-ukol
